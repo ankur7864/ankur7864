@@ -8,5 +8,5 @@
 - 💬 Ask me about Competitive Programming 
 - 📫 How to reach me:[Instagram- @ankurthakur77](https://www.instagram.com/ankurthakur77/),[codechef-@tony_stark1234](https://www.codechef.com/users/tony_stark1234)
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: watching virat kohli cover drive 30 mins a day
+- ⚡ Fun fact: watching virat kohli's cover drive 30 mins a day
 -->
